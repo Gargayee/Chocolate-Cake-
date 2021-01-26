@@ -1,0 +1,5 @@
+Preheat the oven to 175 C. Line a mold of your choice with non stick baking paper, leaving a little overhang for easy removal. Set aside.
+In a mixing bowl, whisk the sugar and oil together, then add the buttermilk and vanilla. Whisk to combine till smooth.
+Now sift in the flour, cocoa, baking soda, baking powder and salt. Fold gently to combine, breaking up any lumps with a whisk, until completely smooth. The batter will be runny.
+Stir in 1/2 cup chocolate chips, then pour the batter into the prepared tin and sprinkle the remaining chips all over the top. Since the batter is quite thin, the chips might sink to the bottom so adding more on top balances things out!
+Bake for 40 to 45 minutes until a toothpick poked in the center comes out clean. If you like, press a few more chips into the top of the cake while it's still hot!
